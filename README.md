@@ -1,1 +1,1 @@
-![Frame 1(6)](https://user-images.githubusercontent.com/58668657/187035928-8cc41614-8135-4fdb-8e27-e0b5178508cd.png)
+![Frame 1(1)](https://github.com/LucasNeuhausDev/lucasneuhausdev/assets/58668657/8c90921b-8c63-44a6-9260-d0df7d3b30ba)
